@@ -1,1 +1,1 @@
- [https://shemchuk.github.io/rsschool-2019Q1-cv/cv](https://shemchuk.github.io/rsschool-2019Q1-cv/cv.md)
+ [https://shemchuk.github.io/rsschool-2019Q1-cv/cv](https://shemchuk.github.io/rsschool-2019Q1-cv/cv)
